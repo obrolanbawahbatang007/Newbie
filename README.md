@@ -1,0 +1,2 @@
+# Newbie
+menemukan hal baru
